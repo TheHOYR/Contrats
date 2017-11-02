@@ -10,6 +10,7 @@ En vue d’une progression prochaine en matière de charisme, ainsi que pour pre
 
 
 <br/>
+
 # ARTICLE 2. LIEU D'EXÉCUTION DE LA PRESTATION<br/>
 <br/>Dans cette affaire, nous devons nous soumettre aux lois ainsi qu’aux usages et aux coutumes des lieux de résidence des différentes parties, mais également aux lois et habitudes des contrés auxquelles ont prêté allégeance les signataires.
 <br/>Pour le cas présent, nous respecterons les lois des pays de vie qui sont respectivement le royaume de France et celui d'Écosse.
