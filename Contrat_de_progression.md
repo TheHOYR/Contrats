@@ -19,6 +19,7 @@ En vue d’une progression prochaine en matière de charisme, ainsi que pour pre
 <br/>Ce faisant, il a été exprimé de façon tacite le désire de se muscler à fond et de devenir ultra fat, mais de façon propre en respectant son corps le plus possible afin de ne pas finir a manger des Big Burger des enseignes, reprenant le terme anglais du roi ou du prénom du président des États-Unis actuel, que nous ne citerons pas ici dans un but purement de professionnalisme. Ce faisant, et pour répondre a la demande montante de fixer cette demande par écrit, les conditions et exécutions seront les suivantes :
 
 <br/>
+
 # ARTICLE 3. OBLIGATIONS DU PREMIER SIGNATAIRE - SIGNATAIRE DU ROYAUME D'ÉCOSSE<br/>
 <br/>En provenance de la partie résidant à Glasgow, il lui sera demandé de fournir un double effort.
 <br/>Cette personne devra se nourrir de façon intensive, tout en respectant son rythme de digestion, ses capacités à ingurgité, et ne pas exploser ses limites formées par son estomac et son enveloppe charnelle, il ne s'agit pas ici de porter atteinte à l'intégrité physique de cette personne ne lui imposant un régime trop important à la limite de l'explosion.
@@ -26,10 +27,12 @@ En vue d’une progression prochaine en matière de charisme, ainsi que pour pre
 <br/>Le signataire s'engage à respecter le nombre de séances par semaine défini ainsi que la charge de travail qui leurs seront associés.
 
 <br/><br/>
+
 # ARTICLE 4. OBLIGATIONS DU SECOND SIGNATAIRE - SIGNATAIRE DU ROYAUME DE FRANCE<br/>
 
 
 <br/>
+
 # ARTICLE 16. DÉVELOPPEMENT PERSONNEL SELON LE ROYAUME DE LVN<br/>
 <br/>Afin d’assurer les meilleures conditions de vie possible pour l’ensemble des sujets du royaume, il a été décidé par l’ensemble de la cour, des consules et des membres d’honneur, que chaque membre du royaume qui se voit octroyer la chance et l’opportunité de réaliser de grands projets dans sa vie, a pour obligation de tout mettre en œuvre pour permettre la réalisation de ce dernier.
 <br/>Tout sujet étant dans une période de sa vie dite “de transition” se verra obtenir un bonus de motivation afin de s'accomplir dans sa quête.
