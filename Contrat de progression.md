@@ -33,6 +33,8 @@ En vue d’une progression prochaine en matière de charisme ainsi que pour pren
 <br/>De plus pour tous les membres privilégiés - souhaitant assurer la régence dans les années suivantes de leur projet - se trouvant entre la période d’enfance - se caractérisant par un faible apport pécunier, mais possédant le temps et l’énergie qui incombent à leur âge - et la période de l’âge adulte - dite d’apport de pécunes - devra, dans la mesure du possible se réaliser dans sa quête en groupe de deux ou trois afin d’obtenir un statut de plus haut rang dans notre société.
 
 
+<br/><br/><br/><br/><br/>
+
 petite ligne :
 coloration de cheveux
 <br/>poids >70Kg : "pas de coloration"
