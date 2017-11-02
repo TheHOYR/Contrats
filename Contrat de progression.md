@@ -4,7 +4,7 @@
 #ARTICLE 1. OBJET DU CONTRAT<br/>
 <br/>Le présent contrat à pour objet : La prise de masse intensive
 
-<br/>En vue d’une progression prochaine en matière de charisme ainsi que pour prendre un maximum de muscle, la rédaction d’un contrat liant les différents signataires semble la meilleure option.
+En vue d’une progression prochaine en matière de charisme ainsi que pour prendre un maximum de muscle, la rédaction d’un contrat liant les différents signataires semble la meilleure option.
 <br/>Il sera de mon devoir, en tant que instigateur du mouvement vers le temple, de définir, tout au long de cet écrit, en termes clair et explicite, les raisons de la ratification d’un tel contrat ainsi que les buts objectifs et condition de réalisation pour les signataires.
 <br/>Toutes les contraintes auxquelles devront se plier les différentes parties seront également clarifié.
 
