@@ -26,11 +26,36 @@ En vue d’une progression prochaine en matière de charisme, ainsi que pour pre
 <br/>Afin de respecter sa prise de masse, cette partie devra donc manger comme un goret durant la période séparant la signature de ce contrat et les fêtes de fin d'année françaises, date à laquelle la partie concernée sera de retour dans le royaume de France et où ce dit contrat sera devenu caduc et engendrera, possiblement, la réalisation d'un suivant afin de revoir les objectifs et de les adapter à la situation le moment venu. Cette partie devra également respecter la fréquence d'entraînement à la salle qui va être définie par la suite.
 <br/>Le signataire s'engage à respecter le nombre de séances par semaine défini ainsi que la charge de travail qui leurs seront associés.
 
+En clair et pour s'assurer que les parties tombent d'accord, le troll d'Écosse doit s'entrainer
+
 <br/><br/>
 
+# ARTICLE 3.1 REGLE DE PROGRESSION - SIGNATAIRE DU ROYAUME D'ÉCOSSE<br/>
+
+Le participant d'Écosse s'engage donc à manger une quantité de nourriture supérieur à 2600 KCal par jour en privilégiant les aliments saints pour son corps et en conservant ses envies de gras et de malbouffe pour le cheatmeal du week-end.
+
+Aussi il devra s'entraîner avec régularité à une fréquence de 3 à 5 séance de musculation par semaine de chacune au minimum 1 heure, et sans passer son temps à s'admirer dans la glace, à jouer sur son téléphone ou a parler avec les autres personnes présente.
+
+[ligne de sanction]
+La liste des activités à ne pas faire n'est pas exhaustive, le signataire sera tenu pour responsable s'il devient tatillon sur les mots et expression dans le but de justifier une séance infructueuse. Il sera accusé sans prévention de tentative de "prise pour un con" du conservateur des bonnes meures.
+Ainsi, si une justification abusive est utilisée à un trop grand nombre de reprises, il sera directement retiré au signataire 0.5 Kg a son compteur final, entrainant les conséquences bien connues qui sont indiqué plus bas dans ce document.
+[ligne de sanction]
+
+
+
+<br/><br/>
 # ARTICLE 4. OBLIGATIONS DU SECOND SIGNATAIRE - SIGNATAIRE DU ROYAUME DE FRANCE<br/>
 
+# ARTICLE 4.1 REGLE DE PROGRESSION - SIGNATAIRE DU ROYAUME DE FRANCE<br/>
 
+Le participant de France s'engage donc à manger une quantité de nourriture supérieur à 3000-3200 KCal par jour en privilégiant les aliments saints pour son corps et en conservant ses envies de gras et de malbouffe pour le cheatmeal du week-end.
+
+Aussi il devra s'entraîner avec régularité à une fréquence de 3 à 5 séance de musculation par semaine de chacune au minimum 1 heure, et sans passer son temps à s'admirer dans la glace, à jouer sur son téléphone ou a parler avec les autres personnes présente.
+
+[ligne de sanction]
+La liste des activités à ne pas faire n'est pas exhaustive, le signataire sera tenu pour responsable s'il devient tatillon sur les mots et expression dans le but de justifier une séance infructueuse. Il sera accusé sans prévention de tentative de "prise pour un con" du conservateur des bonnes meures.
+Ainsi, si une justification abusive est utilisée à un trop grand nombre de reprises, il sera directement retiré au signataire 0.5 Kg a son compteur final, entrainant les conséquences bien connues qui sont indiqué plus bas dans ce document.
+[ligne de sanction]
 <br/>
 
 # ARTICLE 16. DÉVELOPPEMENT PERSONNEL SELON LE ROYAUME DE LVN<br/>
