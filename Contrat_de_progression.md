@@ -1,7 +1,7 @@
-#Contrat de progression
+# Contrat de progression
 
 
-#ARTICLE 1. OBJET DU CONTRAT<br/>
+# ARTICLE 1. OBJET DU CONTRAT<br/>
 <br/>Le présent contrat à pour objet : La prise de masse intensive
 
 En vue d’une progression prochaine en matière de charisme, ainsi que pour prendre un maximum de muscle, la rédaction d’un contrat liant les différents signataires semble la meilleure option.
