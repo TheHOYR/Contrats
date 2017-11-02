@@ -94,19 +94,21 @@ coloration de cheveux
 <br/>60<poids<63 : "vert (foncé)"
 <br/>poids <60 : "rose ou blond selon la teinture trouvé"
 
-
+<br/><br/>
 
 Fait à..........................................................., le................................., en.......... originaux dont un remis au client.
-
+<br/>
 SIGNATURES
 (Faire précéder les signatures de la mention "Lu et approuvé. Bon pour accord.")
 
-
+<br/><br/>
 
 LE FRANCAIS
 
-
+<br/><br/><br/><br/>
 
 
 
 L'ECOSSAIS
+
+<br/><br/><br/><br/>
