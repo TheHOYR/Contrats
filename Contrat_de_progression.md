@@ -59,23 +59,23 @@ Ainsi, si une justification abusive est utilisée à un trop grand nombre de rep
 <br/>
 
 # ARTICLE 5. FORCE MAJEURE<br/>
-    Aucune des parties ne pourra être tenue responsable de son retard ou de sa défaillance dans l'exécution de ses obligations contractuelles si ce retard ou cette défaillance sont dus à la survenance d'un événement échappant à son contrôle, qui ne pouvait pas être raisonnablement prévu lors de la conclusion du contrat et dont les effets ne peuvent être évités par des mesures appropriées.
-    Chaque partie devra informer l'autre partie, sans délai et par lettre recommandée avec demande d'avis de réception ou par simple message WhatsApp pour ne pas se compliquer la vie, de la survenance d'un tel cas lorsqu'elle estime qu'il est de nature à compromettre l'exécution de ses obligations contractuelles.
-    En cas de survenance d'un tel cas de force majeure, l'exécution du présent contrat sera suspendue jusqu'à disparition, extinction ou cessation du cas de force majeure. Toutefois, si le cas de force majeure perdure au delà d'un délai de trente (30) jours, les parties doivent se rapprocher afin de discuter d'une éventuelle modification du contrat.
-    Les échéances prévues par le présent contrat seront automatiquement reportées en fonction de la durée du cas de force majeure.
-    Cependant, si dès la survenance du cas de force majeure, il apparaît que le retard justifie l'adaptation du présent contrat, celui-ci sera adapté de plein droit et les parties sont libérées de leurs première obligations dans les conditions prévues par les articles 1351 et 1351-1 du Code civil.
+<br/>Aucune des parties ne pourra être tenue responsable de son retard ou de sa défaillance dans l'exécution de ses obligations contractuelles si ce retard ou cette défaillance sont dus à la survenance d'un événement échappant à son contrôle, qui ne pouvait pas être raisonnablement prévu lors de la conclusion du contrat et dont les effets ne peuvent être évités par des mesures appropriées.
+<br/>Chaque partie devra informer l'autre partie, sans délai et par lettre recommandée avec demande d'avis de réception ou par simple message WhatsApp pour ne pas se compliquer la vie, de la survenance d'un tel cas lorsqu'elle estime qu'il est de nature à compromettre l'exécution de ses obligations contractuelles.
+<br/>En cas de survenance d'un tel cas de force majeure, l'exécution du présent contrat sera suspendue jusqu'à disparition, extinction ou cessation du cas de force majeure. Toutefois, si le cas de force majeure perdure au delà d'un délai de trente (30) jours, les parties doivent se rapprocher afin de discuter d'une éventuelle modification du contrat.
+<br/>Les échéances prévues par le présent contrat seront automatiquement reportées en fonction de la durée du cas de force majeure.
+<br/>Cependant, si dès la survenance du cas de force majeure, il apparaît que le retard justifie l'adaptation du présent contrat, celui-ci sera adapté de plein droit et les parties sont libérées de leurs première obligations dans les conditions prévues par les articles 1351 et 1351-1 du Code civil.
 
 # ARTICLE 6. RÉSILIATION DU CONTRAT <br/>
-    Le contrat peut  être résilié par l'une des parties après mise en demeure restée sans effet de l'autre partie qui ne remplit pas les obligations auxquelles elle est soumise en vertu du présent contrat.
-    La mise en demeure devra indiquer un délai raisonnable dans lequel la partie contrevenante devra remédier à l'inexécution ou la mauvaise exécution de ses obligations contractuelles. A peine de nullité, la mise en demeure devra également mentionner la présente clause résolutoire.
+<br/>Le contrat peut  être résilié par l'une des parties après mise en demeure restée sans effet de l'autre partie qui ne remplit pas les obligations auxquelles elle est soumise en vertu du présent contrat.
+<br/>La mise en demeure devra indiquer un délai raisonnable dans lequel la partie contrevenante devra remédier à l'inexécution ou la mauvaise exécution de ses obligations contractuelles. A peine de nullité, la mise en demeure devra également mentionner la présente clause résolutoire.
 
 # ARTICLE 7. INVALIDITÉS DES CLAUSES
-    Si l'une des clauses du présent contrat est ou devient non valable eu égard au droit applicable, cette clause doit être considérée comme non écrite, les autres clauses restant en vigueur.
-    Les parties devront procéder au remplacement de la clause non valable, par une autre clause valide et dont le sens est le plus proche possible de l'intention originale des parties.
+<br/>Si l'une des clauses du présent contrat est ou devient non valable eu égard au droit applicable, cette clause doit être considérée comme non écrite, les autres clauses restant en vigueur.
+<br/>Les parties devront procéder au remplacement de la clause non valable, par une autre clause valide et dont le sens est le plus proche possible de l'intention originale des parties.
 
 # ARTICLE 8. RÈGLEMENT DES DIFFÉRENDS<br/>
-    Les parties s'engagent à tenter de régler, à l'amiable, tout différend relatif au présent contrat, y compris à sa signature, son interprétation, son exécution, sa résiliation et aux obligations post-contractuelles.
-    A défaut d'accord amiable, le litige sera porté devant les autorités compétentes.
+<br/>Les parties s'engagent à tenter de régler, à l'amiable, tout différend relatif au présent contrat, y compris à sa signature, son interprétation, son exécution, sa résiliation et aux obligations post-contractuelles.
+<br/>A défaut d'accord amiable, le litige sera porté devant les autorités compétentes.
 
 
 # ARTICLE 16. DÉVELOPPEMENT PERSONNEL SELON LE ROYAUME DE LVN<br/>
