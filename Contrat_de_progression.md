@@ -21,9 +21,10 @@ En vue d’une progression prochaine en matière de charisme, ainsi que pour pre
 #ARTICLE 3. OBLIGATIONS DU PREMIER SIGNATAIRE - SIGNATAIRE DU ROYAUME D'ÉCOSSE<br/>
 <br/>En provenance de la partie résidant à Glasgow, il lui sera demandé de fournir un double effort.
 <br/>Cette personne devra se nourrir de façon intensive, tout en respectant son rythme de digestion, ses capacités à ingurgité, et ne pas exploser ses limites formées par son estomac et son enveloppe charnelle, il ne s'agit pas ici de porter atteinte à l'intégrité physique de cette personne ne lui imposant un régime trop important à la limite de l'explosion.
-<br/>Afin de respecter sa prise de masse, cette partie devra donc manger comme un goret durant la période séparant la signature de ce contrat et les fêtes de fin d'année françaises, date à laquelle la partie concernée sera de retour dans le royaume de France et où ce dit contrat sera devenu caduc et engendrera, possiblement, la réalisation d'un suivant afin de revoir les objectifs et de les adapter à la situation le moment venu. Cette partie devra également respecter la fréquence d'entraînement à la salle qui va être définie par la suite. Le signataire s'engage à respecter le nombre de séances par semaine défini et
+<br/>Afin de respecter sa prise de masse, cette partie devra donc manger comme un goret durant la période séparant la signature de ce contrat et les fêtes de fin d'année françaises, date à laquelle la partie concernée sera de retour dans le royaume de France et où ce dit contrat sera devenu caduc et engendrera, possiblement, la réalisation d'un suivant afin de revoir les objectifs et de les adapter à la situation le moment venu. Cette partie devra également respecter la fréquence d'entraînement à la salle qui va être définie par la suite.
+<br/>Le signataire s'engage à respecter le nombre de séances par semaine défini ainsi que la charge de travail qui leurs seront associés.
 
-<br/>
+<br/><br/>
 #ARTICLE 4. OBLIGATIONS DU SECOND SIGNATAIRE - SIGNATAIRE DU ROYAUME DE FRANCE<br/>
 
 
