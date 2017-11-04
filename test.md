@@ -8,14 +8,16 @@ Toutes les contraintes auxquelles devront se plier les différentes parties sero
  
 # ARTICLE 2. LIEU D'EXÉCUTION DE LA PRESTATION
 
-	Dans cette affaire, nous devons nous soumettre aux lois ainsi qu’aux usages et aux coutumes des lieux de résidence des différentes parties, mais également aux lois et habitudes des contrés auxquelles ont prêté allégeance les signataires.
+Dans cette affaire, nous devons nous soumettre aux lois ainsi qu’aux usages et aux coutumes des lieux de résidence des différentes parties, mais également aux lois et habitudes des contrés auxquelles ont prêté allégeance les signataires.
+
 Pour le cas présent, nous respecterons les lois des pays de vie qui sont respectivement le royaume de France et celui d'Écosse.
 Cependant, les lois du royaume de LVN doivent prévaloir et il sera préférable de rappeler lesdites lois qui nous concerne. C’est ainsi qu’il sera rappelé, lors de l'# ARTICLE 16, les règles du royaume à propos du développement personnel.
 Ce faisant, il a été exprimé de façon tacite le désire de se muscler à fond et de devenir ultra fat, mais de façon propre en respectant son corps le plus possible afin de ne pas finir à manger des Big Burger des enseignes, reprenant le terme anglais du roi ou du prénom du président des États-Unis actuel, que nous ne citerons pas ici dans un but purement de professionnalisme. Ce faisant, et pour répondre à la demande montante de fixer cette demande par écrit, les conditions et exécutions seront les suivantes :
  
 # ARTICLE 3. OBLIGATIONS DU PREMIER SIGNATAIRE - SIGNATAIRE DU ROYAUME D'ÉCOSSE
 
-	En provenance de la partie résidant à Glasgow, il lui sera demandé de fournir un double effort.
+En provenance de la partie résidant à Glasgow, il lui sera demandé de fournir un double effort.
+
 Cette personne devra se nourrir de façon intensive, tout en respectant son rythme de digestion, ses capacités à ingurgité, et ne pas exploser ses limites formées par son estomac et son enveloppe charnelle, il ne s'agit pas ici de porter atteinte à l'intégrité physique de cette personne en lui imposant un régime trop important à la limite de l'explosion.
 Afin de respecter sa prise de masse, cette partie devra donc manger comme un goret durant la période séparant la signature de ce contrat et les fêtes de fin d'année françaises, date à laquelle la partie concernée sera de retour dans le royaume de France et où ce dit contrat sera devenu caduc et engendrera, possiblement, la réalisation d'un suivant afin de revoir les objectifs et de les adapter à la situation le moment venu. Cette partie devra également respecter la fréquence d'entraînement à la salle qui va être définie par la suite.
 Le signataire s'engage à respecter le nombre de séances par semaine défini ainsi que la charge de travail qui leurs seront associés.
@@ -30,7 +32,7 @@ La liste des activités à ne pas faire n'est pas exhaustive, le signataire sera
 [Ligne de sanction]
 # ARTICLE 4. OBLIGATIONS DU PREMIER SIGNATAIRE - SIGNATAIRE DU ROYAUME DE FRANCE
 
-	En provenance de la partie résidant entre Annecy et Lyon, il lui sera demandé de fournir un double effort également.
+En provenance de la partie résidant entre Annecy et Lyon, il lui sera demandé de fournir un double effort également.
 Cette personne devra se nourrir de façon intensive (comme d’habitude mais en plus violent), tout en essayant de découvrir les limites que constitue l’entité du puits sans fond formées par son estomac et son enveloppe charnelle, il ne s'agit pas ici de porter atteinte à l'intégrité physique de cette personne mais bien d’une recherche scientifique faite en parallèle de l’entrainement. Afin de respecter sa prise de masse, cette partie devra donc manger comme s’il était le seul à pouvoir le faire dans le royaume de LVN jusqu’à la période des fêtes de fin d'année françaises, date à laquelle la partie adverse sera de retour dans le royaume de France, nous célébrerons les fête Royales en contré LVN et où ce dit contrat sera devenu caduc et engendrera, possiblement, la réalisation d'un suivant afin de revoir les objectifs et de les adapter à la situation le moment venu. Cette partie devra également respecter la fréquence d'entraînement à la salle qui va être définie par la suite.
 Le signataire s'engage à respecter le nombre de séances par semaine défini ainsi que la charge de travail qui leurs seront associés.
 En clair et pour s'assurer que les parties tombent d'accord, le baron Français doit s'entrainer le plus possible dans la limite de ses capacités physiques bien que des courbatures ne puisse faire état de limites sauf cas insoutenable. Mais également il devra se concentrer sur son alimentation et privilégier les aliments saints pour pouvoir manger en plus grande quantité et arrêter les burger régulier (bien que gratuit). 
@@ -44,7 +46,7 @@ La liste des activités à ne pas faire n'est pas exhaustive, le signataire sera
  
 # ARTICLE 5. FORCE MAJEURE
 
-	Aucune des parties ne pourra être tenue responsable de son retard ou de sa défaillance dans l'exécution de ses obligations contractuelles si ce retard ou cette défaillance sont dus à la survenance d'un événement échappant à son contrôle, qui ne pouvait pas être raisonnablement prévu lors de la conclusion du contrat et dont les effets ne peuvent être évités par des mesures appropriées.
+Aucune des parties ne pourra être tenue responsable de son retard ou de sa défaillance dans l'exécution de ses obligations contractuelles si ce retard ou cette défaillance sont dus à la survenance d'un événement échappant à son contrôle, qui ne pouvait pas être raisonnablement prévu lors de la conclusion du contrat et dont les effets ne peuvent être évités par des mesures appropriées.
 Chaque partie devra informer l'autre partie, sans délai et par lettre recommandée avec demande d'avis de réception ou par simple message WhatsApp pour ne pas se compliquer la vie, de la survenance d'un tel cas lorsqu'elle estime qu'il est de nature à compromettre l'exécution de ses obligations contractuelles.
 En cas de survenance d'un tel cas de force majeure, l'exécution du présent contrat sera suspendue jusqu'à disparition, extinction ou cessation du cas de force majeure. Toutefois, si le cas de force majeure perdure au-delà d'un délai de trente (30) jours, les parties doivent se rapprocher afin de discuter d'une éventuelle modification du contrat.
 Les échéances prévues par le présent contrat seront automatiquement reportées en fonction de la durée du cas de force majeure.
@@ -55,11 +57,11 @@ Le contrat peut être résilié par l'une des parties après mise en demeure res
 La mise en demeure devra indiquer un délai raisonnable dans lequel la partie contrevenante devra remédier à l'inexécution ou la mauvaise exécution de ses obligations contractuelles. A peine de nullité, la mise en demeure devra également mentionner la présente clause résolutoire.
 # ARTICLE 7. INVALIDITÉS DES CLAUSES
 
-	Si l'une des clauses du présent contrat est ou devient non valable eu égard au droit applicable, cette clause doit être considérée comme non écrite, les autres clauses restant en vigueur.
+Si l'une des clauses du présent contrat est ou devient non valable eu égard au droit applicable, cette clause doit être considérée comme non écrite, les autres clauses restant en vigueur.
 Les parties devront procéder au remplacement de la clause non valable, par une autre clause valide et dont le sens est le plus proche possible de l'intention originale des parties.
 # ARTICLE 8. RÈGLEMENT DES DIFFÉRENDS
 
-	Les parties s'engagent à tenter de régler, à l'amiable, tout différend relatif au présent contrat, y compris à sa signature, son interprétation, son exécution, sa résiliation et aux obligations post-contractuelles.
+Les parties s'engagent à tenter de régler, à l'amiable, tout différend relatif au présent contrat, y compris à sa signature, son interprétation, son exécution, sa résiliation et aux obligations post-contractuelles.
 A défaut d'accord amiable, le litige sera porté devant les autorités compétentes.
  
 # ARTICLE 9. DEFINITION DES OBJECTIFS
@@ -79,7 +81,7 @@ LE FRANÇAIS									L'ECOSSAIS
  
 # ARTICLE 16. DÉVELOPPEMENT PERSONNEL SELON LE ROYAUME DE LVN
 
-	Afin d’assurer les meilleures conditions de vie possible pour l’ensemble des sujets du royaume, il a été décidé par l’ensemble de la cour, des consules et des membres d’honneur, que chaque membre du royaume qui se voit octroyer la chance et l’opportunité de réaliser de grands projets dans sa vie, a pour obligation de tout mettre en œuvre pour permettre la réalisation de ce dernier.
+Afin d’assurer les meilleures conditions de vie possible pour l’ensemble des sujets du royaume, il a été décidé par l’ensemble de la cour, des consules et des membres d’honneur, que chaque membre du royaume qui se voit octroyer la chance et l’opportunité de réaliser de grands projets dans sa vie, a pour obligation de tout mettre en œuvre pour permettre la réalisation de ce dernier.
 Tout sujet étant dans une période de sa vie dite “de transition” se verra obtenir un bonus de motivation afin de s'accomplir dans sa quête.
 De plus pour tous les membres privilégiés - souhaitant assurer la régence dans les années suivantes de leur projet - se trouvant entre la période d’enfance - se caractérisant par un faible apport pécunier, mais possédant le temps et l’énergie qui incombent à leur âge - et la période de l’âge adulte - dite d’apport de pécunes - devra, dans la mesure du possible se réaliser dans sa quête en groupe de deux ou trois afin d’obtenir un statut de plus haut rang dans notre société.
 
