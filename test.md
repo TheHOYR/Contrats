@@ -9,7 +9,6 @@ Toutes les contraintes auxquelles devront se plier les différentes parties sero
 # ARTICLE 2. LIEU D'EXÉCUTION DE LA PRESTATION
 
 Dans cette affaire, nous devons nous soumettre aux lois ainsi qu’aux usages et aux coutumes des lieux de résidence des différentes parties, mais également aux lois et habitudes des contrés auxquelles ont prêté allégeance les signataires.
-
 Pour le cas présent, nous respecterons les lois des pays de vie qui sont respectivement le royaume de France et celui d'Écosse.
 Cependant, les lois du royaume de LVN doivent prévaloir et il sera préférable de rappeler lesdites lois qui nous concerne. C’est ainsi qu’il sera rappelé, lors de l'# ARTICLE 16, les règles du royaume à propos du développement personnel.
 Ce faisant, il a été exprimé de façon tacite le désire de se muscler à fond et de devenir ultra fat, mais de façon propre en respectant son corps le plus possible afin de ne pas finir à manger des Big Burger des enseignes, reprenant le terme anglais du roi ou du prénom du président des États-Unis actuel, que nous ne citerons pas ici dans un but purement de professionnalisme. Ce faisant, et pour répondre à la demande montante de fixer cette demande par écrit, les conditions et exécutions seront les suivantes :
@@ -17,7 +16,6 @@ Ce faisant, il a été exprimé de façon tacite le désire de se muscler à fon
 # ARTICLE 3. OBLIGATIONS DU PREMIER SIGNATAIRE - SIGNATAIRE DU ROYAUME D'ÉCOSSE
 
 En provenance de la partie résidant à Glasgow, il lui sera demandé de fournir un double effort.
-
 Cette personne devra se nourrir de façon intensive, tout en respectant son rythme de digestion, ses capacités à ingurgité, et ne pas exploser ses limites formées par son estomac et son enveloppe charnelle, il ne s'agit pas ici de porter atteinte à l'intégrité physique de cette personne en lui imposant un régime trop important à la limite de l'explosion.
 Afin de respecter sa prise de masse, cette partie devra donc manger comme un goret durant la période séparant la signature de ce contrat et les fêtes de fin d'année françaises, date à laquelle la partie concernée sera de retour dans le royaume de France et où ce dit contrat sera devenu caduc et engendrera, possiblement, la réalisation d'un suivant afin de revoir les objectifs et de les adapter à la situation le moment venu. Cette partie devra également respecter la fréquence d'entraînement à la salle qui va être définie par la suite.
 Le signataire s'engage à respecter le nombre de séances par semaine défini ainsi que la charge de travail qui leurs seront associés.
@@ -69,10 +67,11 @@ Le contrat a été rédiger dans un but précis, motivé les différentes partie
 
 Pour la partie de Annecy-Lyon
 		Pour cette partie les objectifs ont été défini lors de l’écriture de ce contrat et seront validés par la signature des différentes parties. Il est question ici de maintenir la régularité de pratique de sport acquise précédemment, la conserver lors de sa présence dans la division annecienne de la section française du royaume de LVN, mais également l’appliquer dans la nouvelle division qu’est la division lyonnaise. Pour ce cas-ci nous n’avons pas d’objectif de masse final sur la balance mais plutôt de masse soulevée, aux vues des pertes engendré par le mois d’intégration dans la nouvelle division. L’objectif sera donc de soulever une masse de 50Kg au développé couché barre non assisté sur une série de dix répétitions. Mais le signataire devra également retrouver sa force sur la machine à pecs du grand schlem soit une série de 5 répétitions à 150 Kilogrammes.
-(Les 80Kg de la galère de la période de la signature du contrat c’est tout naze #OuiCestUnAveueMaisPersonneNeLira) Sanction (double condition de réussite/échec) : > 150/50 malus a la partie adverse // >=140/45 pas de coloration // >130/40 Violet Foncé // >120/35 Bordeaux // >110/30 Vert/Rose/Blond selon la bon vouloir de la partie adverse car 30Kg franchement c’est ridicule pour un mec qui le fait déjà
+(Les 80Kg de la galère de la période de la signature du contrat c’est tout naze #OuiCestUnAveueMaisPersonneNeLira) Sanction (double condition de réussite/échec) : > 150/50 malus a la partie adverse // >=140/45 pas de coloration // >130/40 Violet Foncé // >120/35 Bordeaux // >110/30 Vert/Rose/Blond selon la bon vouloir de la partie adverse car 30Kg franchement c’est ridicule pour un mec qui le fait déjà. Malus : enlever 1 ou 2 Kg au résultats final de son adversaire LVN LVN LVN LVN LVN LVN LVN LVN LVN LVN LVN LVN LVN LVN LVN LVN LVN LVN LVN
 
 Pour la partie de Glasgow
-		Pour cette parte les objectifs ont été défini en accord par les deux parties, il est question de réussir à maintenir une régularité tant dans la nutrition que dans la pratique de la musculation. L’objectif principal de cette partie est d’atteindre la masse de 72 Kg d’ici son retour au Royaume de LVN section Française. Pour tout manquement des sanctions sont prévues #ColorationDesCheveuxSelonLaMasse : >77Kg : malus a la partie adverse // poids >70Kg : "pas de coloration"// 65<poids<70 : "Violet (foncé)"//63<poids<65 : "Bordeau"//60<poids<63 : "vert (foncé)"//poids <60 : "rose ou blond selon la teinture trouvée"
+		Pour cette parte les objectifs ont été défini en accord par les deux parties, il est question de réussir à maintenir une régularité tant dans la nutrition que dans la pratique de la musculation. L’objectif principal de cette partie est d’atteindre la masse de 72 Kg d’ici son retour au Royaume de LVN section Française.
+Nous rappelons que la masse atteinte de doit pas déborder en formant ce que nous appelons un gros bide ; pour tout manquement des sanctions sont prévues #ColorationDesCheveuxSelonLaMasse : >77Kg : malus a la partie adverse // poids >70Kg : "pas de coloration"// 65<poids<70 : "Violet (foncé)"//63<poids<65 : "Bordeau"//60<poids<63 : "vert (foncé)"//poids <60 : "rose ou blond selon la teinture trouvée".  Malus : enlever 5 Kg au résultats final de son adversaire LVN LVN LVN LVN LVN LVN LVN LVN LVN LVN LVN LVN LVN LVN LVN LVN LVN LVN LVN
 
 Imprimé à………………………………………………………………… le ……………………………………………
 
@@ -81,7 +80,7 @@ LE FRANÇAIS									L'ECOSSAIS
  
 # ARTICLE 16. DÉVELOPPEMENT PERSONNEL SELON LE ROYAUME DE LVN
 
-Afin d’assurer les meilleures conditions de vie possible pour l’ensemble des sujets du royaume, il a été décidé par l’ensemble de la cour, des consules et des membres d’honneur, que chaque membre du royaume qui se voit octroyer la chance et l’opportunité de réaliser de grands projets dans sa vie, a pour obligation de tout mettre en œuvre pour permettre la réalisation de ce dernier.
+# ARTICLEAfin d’assurer les meilleures conditions de vie possible pour l’ensemble des sujets du royaume, il a été décidé par l’ensemble de la cour, des consules et des membres d’honneur, que chaque membre du royaume qui se voit octroyer la chance et l’opportunité de réaliser de grands projets dans sa vie, a pour obligation de tout mettre en œuvre pour permettre la réalisation de ce dernier.
 Tout sujet étant dans une période de sa vie dite “de transition” se verra obtenir un bonus de motivation afin de s'accomplir dans sa quête.
 De plus pour tous les membres privilégiés - souhaitant assurer la régence dans les années suivantes de leur projet - se trouvant entre la période d’enfance - se caractérisant par un faible apport pécunier, mais possédant le temps et l’énergie qui incombent à leur âge - et la période de l’âge adulte - dite d’apport de pécunes - devra, dans la mesure du possible se réaliser dans sa quête en groupe de deux ou trois afin d’obtenir un statut de plus haut rang dans notre société.
 
