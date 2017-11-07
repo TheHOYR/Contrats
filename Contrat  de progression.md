@@ -80,7 +80,7 @@ LE FRANÇAIS									L'ECOSSAIS
  
 # ARTICLE 16. DÉVELOPPEMENT PERSONNEL SELON LE ROYAUME DE LVN
 
-# ARTICLEAfin d’assurer les meilleures conditions de vie possible pour l’ensemble des sujets du royaume, il a été décidé par l’ensemble de la cour, des consules et des membres d’honneur, que chaque membre du royaume qui se voit octroyer la chance et l’opportunité de réaliser de grands projets dans sa vie, a pour obligation de tout mettre en œuvre pour permettre la réalisation de ce dernier.
+Afin d’assurer les meilleures conditions de vie possible pour l’ensemble des sujets du royaume, il a été décidé par l’ensemble de la cour, des consules et des membres d’honneur, que chaque membre du royaume qui se voit octroyer la chance et l’opportunité de réaliser de grands projets dans sa vie, a pour obligation de tout mettre en œuvre pour permettre la réalisation de ce dernier.
 Tout sujet étant dans une période de sa vie dite “de transition” se verra obtenir un bonus de motivation afin de s'accomplir dans sa quête.
 De plus pour tous les membres privilégiés - souhaitant assurer la régence dans les années suivantes de leur projet - se trouvant entre la période d’enfance - se caractérisant par un faible apport pécunier, mais possédant le temps et l’énergie qui incombent à leur âge - et la période de l’âge adulte - dite d’apport de pécunes - devra, dans la mesure du possible se réaliser dans sa quête en groupe de deux ou trois afin d’obtenir un statut de plus haut rang dans notre société.
 
